@@ -1,2 +1,2 @@
 # Great-for-Market-Forecasts-Less-So-for-Emerging-Tech
-The forecast methodology was transparent and easy to follow, which I appreciated. The numbers were closer to what we’re seeing on-ground compared to other agencies. That said, I was expecting more coverage on newer technologies like green hydrogen and next-gen storage. Still a worthwhile purchase.
+The forecast methodology of the **[Renewable Energy Market](https://www.nextmsc.com/report/renewable-energy-market)** report was transparent and easy to follow, which I appreciated. The numbers were closer to what we’re seeing on-ground compared to other agencies. That said, I was expecting more coverage on newer technologies like green hydrogen and next-gen storage. Still a worthwhile purchase.
